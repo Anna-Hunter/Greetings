@@ -1,1 +1,3 @@
 # Greetings
+Greetings, I am a motivated and organized individual who is entering the pathway of cybersecurity from a nursing background to expand helping people, and companies, mitigating risks, finding resolution to barriers or compromised situations and helping to protect and keep information safe.  
+Digital informatic is always expanding to new horizons, as so do risks. I have worked in healthcare and have supported families who have been affected by unfortunate events where information had been compromised. I am highly motivated in expanding my knowledge and contribute to Cybersecurity in saefguarding companies and people's informtion.  
